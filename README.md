@@ -8,5 +8,4 @@ I am a third year undergraduate Computer Engineering student at Nirma University
 
 - ✔Ask me about anything, I am happy to help, only if the ball is in my court!😉
 - 📫Reach out to me at: mistrydarshan711@gmail.com
-- 🌐Personal Portfolio:
 
